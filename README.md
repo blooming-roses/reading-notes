@@ -14,4 +14,4 @@ Growth mindset is when we believe that even their most basic abilities can be de
  - *Learn well, not fast. Take your time to learn what you need to learn.*
  - *Push out of your comfort zone, try new things and explore new interests!*
 
- - ![image](https://github.com/blooming-roses/reading-notes/assets/152890089/ff550b61-2f9d-4bc0-87fa-1d6e6a2447a6)
+![image](https://github.com/blooming-roses/reading-notes/assets/152890089/ff550b61-2f9d-4bc0-87fa-1d6e6a2447a6)

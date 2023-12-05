@@ -9,7 +9,7 @@ _Hello! My name is Kassandra Gonzalez, and I am currently a junior attending hig
 ***What is a Growth Mindset?*** 
 Growth mindset is when we believe that even their most basic abilities can be developed into something greater through hard work and determination.
 
-***3 reminders of how to keep yourself in a growth mindset:*** 
- - Ask questions 
- - Learn well, not fast 
- - Push out of your comfort zone
+***3 reminders of how I can keep myself in a growth mindset:*** 
+ - *Ask questions about anything I have trouble understanding anything.*
+ - *Learn well, not fast. Take your time to learn what you need to learn.*
+ - *Push out of your comfort zone, try new things and explore new interests!*
